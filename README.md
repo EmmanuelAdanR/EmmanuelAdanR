@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EmmanuelAdanR
+- 👀 I’m interested in IA, Project Management, technology.
+- 🌱 I’m currently learning I
+- 💞️ I’m looking to collaborate on Project Management
+- 😄 Pronouns: He/Him
